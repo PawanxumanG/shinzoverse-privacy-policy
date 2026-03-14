@@ -1,0 +1,1 @@
+# shinzoverse-privacy-policy
